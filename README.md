@@ -1,4 +1,4 @@
-Artisan-Magic
+The Artisan Magic Categories
 =============
 
-The Artisan+Magic categories
+Check out Artisan Mobile at http://useartisan.com
